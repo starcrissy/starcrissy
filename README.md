@@ -3,7 +3,7 @@
 
 𝘀𝗼𝗺𝗲 𝗼𝗳 𝗺𝘆 𝗶𝗻𝘁𝗲𝗿𝗲𝘀𝘁𝘀  :   🐰 
 genshin impact , honkai: star rail , infinity nikki and ponytown ofc .ᐟ  :ribbon: 
-ALNST , Arcane and shoujo fashion/anime ♡
+ALNST , Arcane , shoujo fashion/anime , tgswiiwagaa and more ♡
 
 𝗗𝗡𝗜 : all basic dni , DON'T COPY MY SKINS .ᐟ you can take inspiration ONLY if you ask me and i'll give you permission . 
 ☕ 𝗼𝘁𝗵𝗲𝗿 𝗶𝗻𝗳𝗼 . . 
