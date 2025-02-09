@@ -14,3 +14,5 @@ besides the dni , i am really friendly ^_^ cuddles are always welcomed ♡ i mig
 
 
 check my rentry for more   ✿◌   ۪  ty for reading ૮꒰ྀི⁔.⸝⸝⸝⸝.⁔꒱ྀིა
+
+ೃ⁀➷  𝙣𝙤𝙩𝙚 : i notice every gimmicks on strawpage ^__^ idk how to reply tho , sorry about that !
