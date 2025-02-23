@@ -13,6 +13,6 @@ besides the dni , i am really friendly ^_^ cuddles are always welcomed ♡ i mig
 ![b148407e7f0a300e478fb2acdc970aaa](https://github.com/user-attachments/assets/b0ee6a3b-f56b-461b-8999-7f0f5ac02a94)
 
 
-check my rentry for more   ✿◌   ۪  ty for reading ૮꒰ྀི⁔.⸝⸝⸝⸝.⁔꒱ྀིა
+check my rentry for more   ✿◌   ۪  
 
 ೃ⁀➷  𝙣𝙤𝙩𝙚 : i notice every gimmicks on strawpage ^__^ 
