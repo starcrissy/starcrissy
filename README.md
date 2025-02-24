@@ -8,8 +8,7 @@ check my rentry to know more about me .ᐟ   ✿◌   ۪
 ೃ⁀➷  𝙣𝙤𝙩𝙚 : i notice every gimmicks on strawpage ^__^ 
 
 
-
-
+![e02af226c8c3cf900e063facbc82fea4](https://github.com/user-attachments/assets/7abf7561-1f88-412f-93ea-335677a3160a)
 
 
 
