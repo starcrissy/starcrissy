@@ -2,7 +2,7 @@
 
 
 check my strawpage to know more about me .ᐟ   ✿◌   ۪ 
-
+feel free to c+h / w2i  ♡
 ᶻ 𝗓           𝗱𝗼𝗻'𝘁 𝗰𝗼𝗽𝘆 𝗺𝘆 𝘀𝗸𝗶𝗻𝘀 𝗼𝗿 𝗵𝗲𝗮𝘃𝘆 𝗶𝗻𝘀𝗽𝗼 
 
 ೃ⁀➷  𝙣𝙤𝙩𝙚 : i notice every gimmicks on strawpage ^__^ 
