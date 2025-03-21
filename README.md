@@ -1,4 +1,3 @@
-![c6a71aa6b2bb3f26358e964d9669f883](https://github.com/user-attachments/assets/76cdeced-a61b-4f95-bc94-e1770c85c2e9)
 
 
 check my strawpage to know more about me .ᐟ   ✿◌   ۪ 
