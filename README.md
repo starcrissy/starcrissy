@@ -1,13 +1,15 @@
 <div id="header" align="center">  
    
-   ![Image](https://github.com/user-attachments/assets/93281f4c-483e-4d8d-a4c4-619b35a6fa38)
+![nesbpz](https://github.com/user-attachments/assets/600499f0-7e3c-4e9a-a854-b851c107ab52)
 
-            𝗺𝗮𝗱𝗲 𝗯𝘆 @𝗺𝗶𝗶𝘆𝗮𝘀𝗲 .ᐟ  ♡
+![tumblr_79214b9605258f8e068a71cb16647c8f_7a0fc5c5_1280](https://github.com/user-attachments/assets/dffe51b3-6e72-462c-932f-3c294490b781)
 
 
-![div36](https://github.com/user-attachments/assets/6c9adcb6-f748-4e0b-bb6a-a21771b6204b)![div36](https://github.com/user-attachments/assets/0b20ad4e-eb09-4809-83c4-2bb93422d25d)
+![edneyn](https://github.com/user-attachments/assets/041c58c2-77d4-402b-8f10-a20c82209c5f)
 
  ㅤㅤ https://thegng.straw.page/  ㅤㅤ𝗹𝘂𝘃𝗶𝗲𝘀 ㅤ૮₍ ´ ꒳ `₎ა
+
+![y24n7p](https://github.com/user-attachments/assets/22bc5d4a-7423-4a60-9c67-c86de44fc8a7)
 
 
 
