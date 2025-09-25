@@ -1,15 +1,14 @@
 <div id="header" align="center">  
-   
-![nesbpz](https://github.com/user-attachments/assets/600499f0-7e3c-4e9a-a854-b851c107ab52)
-
-![tumblr_79214b9605258f8e068a71cb16647c8f_7a0fc5c5_1280](https://github.com/user-attachments/assets/dffe51b3-6e72-462c-932f-3c294490b781)
+   <img width="1280" height="184" alt="tumblr_3eee5144dabaff2e1fc65a0c09764c40_fc73bf7f_1280 (1)" src="https://github.com/user-attachments/assets/f1a9c08a-1aa3-4a77-8baa-c0a2192c341a" />
 
 
-![edneyn](https://github.com/user-attachments/assets/041c58c2-77d4-402b-8f10-a20c82209c5f)
+![faf3de5140615c53cbad70fcaba9f208](https://github.com/user-attachments/assets/f6696395-5fe2-49e4-b42f-ed55c4c3dd6f)
 
- ㅤㅤ https://thegng.straw.page/  ㅤㅤ𝗹𝘂𝘃𝗶𝗲𝘀 ㅤ૮₍ ´ ꒳ `₎ა
 
-![y24n7p](https://github.com/user-attachments/assets/22bc5d4a-7423-4a60-9c67-c86de44fc8a7)
+ ㅤㅤ 𝑚𝑒 𝑛 𝑡𝑤𝑖𝑛 . . ㅤ૮₍ ´ ꒳ `₎ა  ༉‧₊˚. ㅤㅤ @tarofgt
+
+![tumblr_00f9ab05614bc8dd64b64bd33c0f42f3_7990d96c_400](https://github.com/user-attachments/assets/a970b12f-d7b9-4fbb-8906-7339a5065d3b)![tumblr_0f3ff55550a0b88d7a38b3fbd6ca66d6_221ab3ea_400](https://github.com/user-attachments/assets/a72aca4f-8a59-49a5-a674-87c5c7023b35)
+
 
 
 
