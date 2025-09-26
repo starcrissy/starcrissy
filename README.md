@@ -10,7 +10,7 @@
 
  ㅤㅤ 𝑚𝑒 𝑛 𝑡𝑤𝑖𝑛 . . ㅤ૮₍ ´ ꒳ `₎ა  ༉‧₊˚. ㅤㅤ @tarofgt
 
-![tumblr_00f9ab05614bc8dd64b64bd33c0f42f3_7990d96c_400](https://github.com/user-attachments/assets/a970b12f-d7b9-4fbb-8906-7339a5065d3b)![tumblr_0f3ff55550a0b88d7a38b3fbd6ca66d6_221ab3ea_400](https://github.com/user-attachments/assets/a72aca4f-8a59-49a5-a674-87c5c7023b35)
+
 
 
 
