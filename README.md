@@ -3,11 +3,18 @@
 
 
 
+![1hkrpi](https://github.com/user-attachments/assets/18d16b3e-1618-4a35-84fb-1d7ad2e48729)
 
-![61644781a464e91abdf83a076d8ff77d](https://github.com/user-attachments/assets/c890f0e0-c043-4de0-a72e-02a08f1fc16c)
 
 
- ㅤㅤ  ㅤ૮₍ ´ ꒳ `₎ა  ༉‧₊˚. ㅤㅤ
+
+ ㅤpfp made by @l0uscent ♡ ♡ ♡ ilysm !ㅤ  ૮₍ ´ ꒳ `₎ა  ༉‧₊˚. ㅤㅤ
+
+ 
+![tumblr_87b1a025f6bff546d84e4dc5d751eaaf_7e3b077c_75](https://github.com/user-attachments/assets/49ba77d2-6b95-43fd-a031-66cede8164f0) ㅤsign my atabook ⌨
+
+<img width="1280" height="168" alt="tumblr_163dccc1291c85231728563450bd11b8_a84ca881_1280" src="https://github.com/user-attachments/assets/58a9d7a5-35a3-42e5-bb5a-409b13fa5cd8" />
+
 
 
 
