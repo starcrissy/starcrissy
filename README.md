@@ -11,7 +11,7 @@
 
 𝗱𝗻𝗶 : ㅤbɑsic criteriɑ , roleplɑyers , weirdos in generɑlㅤ ![2o4tax](https://github.com/user-attachments/assets/5e1e4ee3-c7e3-4b38-b7ec-9247352e7ffa)
 
-[ata](https://pinkinthenight.atabook.org/)ㅤ[straw](https://sweetestdoll.straw.page/)ㅤ[pt info](https://ptinfoss.straw.page/)
+[ata](https://pinkinthenight.atabook.org/)ㅤ[straw](https://sweetestdoll.straw.page/)ㅤ[pt info](https://ptinfoss.straw.page/)ㅤ[lovemail](https://lovemailmeow.straw.page/) 
 ㅤ
 
 𝑝𝑓𝑝 𝑐𝑟 : ℒ𝑢333𝑐𝑖 𝒳 
