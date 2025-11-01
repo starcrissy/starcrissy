@@ -9,7 +9,7 @@
 ![tumblr_0c630ee4ab7c296e40799fff3b6b7a40_e4c44b16_540](https://github.com/user-attachments/assets/ea979294-691d-443a-9232-ad32d22cc764)
 
 
-𝗱𝗻𝗶 : ㅤbɑsic criteriɑ , roleplɑyers , weirdos in generɑlㅤ ![2o4tax](https://github.com/user-attachments/assets/5e1e4ee3-c7e3-4b38-b7ec-9247352e7ffa)
+![2o4tax](https://github.com/user-attachments/assets/5e1e4ee3-c7e3-4b38-b7ec-9247352e7ffa)
 
 [ata](https://pinkinthenight.atabook.org/)ㅤ[straw](https://sweetestdoll.straw.page/)ㅤ[pt info](https://ptinfoss.straw.page/)ㅤ[lovemail](https://lovemailmeow.straw.page/) 
 ㅤ
