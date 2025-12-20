@@ -7,7 +7,7 @@
 𓉸ྀིㅤㅤ𝑠𝑖𝑔𝑛 𝑚𝑦 𝑎𝑡𝑎𝑏𝑜𝑜𝑘ㅤ゛ ⸝⸝.ᐟ⋆
 
 
-![tumblr_b7ba9acb316cf076f1cb34b4e5d18cb2_46458c73_1280](https://github.com/user-attachments/assets/6c277056-d37c-442c-be56-368298df88bc)
+![tumblr_2100485bbe18c9eebc2b5d53301d5e4b_accc39b3_250](https://github.com/user-attachments/assets/ef5a1073-ab21-467c-a69c-3379cc67413d)
 
 
 [ata](https://pinkinthenight.atabook.org/)ㅤ[straw](https://sweetestdoll.straw.page/)ㅤ[pt info](https://ptinfoss.straw.page/)ㅤ[lovemail](https://lovemailmeow.straw.page/) 
