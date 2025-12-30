@@ -12,7 +12,7 @@
 
 [ata](https://pinkinthenight.atabook.org/)ㅤ[carrd](https://binass.carrd.co/)ㅤ[byi](https://ptbyi.straw.page/)ㅤ[pinkterests](https://pinkterests.carrd.co/)
 
-ㅤ
+ㅤ𝑛𝑜 𝑐𝑜𝑙𝑜𝑟𝑝𝑖𝑐𝑘𝑖𝑛𝑔 + 𝑎𝑙𝑤𝑎𝑦𝑠 𝑎𝑠𝑘 𝑚𝑦 𝑝𝑒𝑟𝑚𝑖𝑠𝑠𝑖𝑜𝑛 𝑓𝑖𝑟𝑠𝑡 𝑓𝑜𝑟 𝑖𝑛𝑠𝑝𝑜 .
 
  
 ![1276379jjk5zyamx4](https://github.com/user-attachments/assets/22542a7d-f8fc-44ef-bd04-259bce6cbb1f)
