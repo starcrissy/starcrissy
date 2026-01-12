@@ -10,7 +10,7 @@
 ![tumblr_2100485bbe18c9eebc2b5d53301d5e4b_accc39b3_250](https://github.com/user-attachments/assets/ef5a1073-ab21-467c-a69c-3379cc67413d)
 
 
-[ata](https://pinkinthenight.atabook.org/)ㅤ[carrd](https://binass.carrd.co/)ㅤ[byi](https://byindni4pt.carrd.co/#)ㅤ[pinkterests](https://pinkterests.carrd.co/)
+[ata](https://pinkinthenight.atabook.org/)ㅤ[carrd](https://binass.carrd.co/)ㅤ[byi](https://byindni4pt.carrd.co/#)ㅤ[pinkterests](https://pinkterests.carrd.co/)ㅤ[myart](https://crissyart.straw.page/)
 
 ㅤ𝑛𝑜 𝑐𝑜𝑙𝑜𝑟𝑝𝑖𝑐𝑘𝑖𝑛𝑔 + 𝑎𝑙𝑤𝑎𝑦𝑠 𝑎𝑠𝑘 𝑚𝑦 𝑝𝑒𝑟𝑚𝑖𝑠𝑠𝑖𝑜𝑛 𝑓𝑖𝑟𝑠𝑡 𝑓𝑜𝑟 𝑖𝑛𝑠𝑝𝑜 .
 
