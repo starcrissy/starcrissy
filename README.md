@@ -6,7 +6,8 @@
 𓉸ྀིㅤㅤ𝑠𝑖𝑔𝑛 𝑚𝑦 𝑎𝑡𝑎𝑏𝑜𝑜𝑘ㅤ゛ ⸝⸝.ᐟ⋆
 
 
-<img width="400" height="375" alt="dmsuso" src="https://github.com/user-attachments/assets/f9b2cc60-8cca-4404-bdfb-95c64b673b15" />
+![54cba3ca77bf8d90f40edea7ef26518e](https://github.com/user-attachments/assets/88dbbd3c-0417-4bdf-af9b-0280a4eb863e)
+
 
 
 
