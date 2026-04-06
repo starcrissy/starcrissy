@@ -21,8 +21,7 @@
 ![zfwhpm](https://github.com/user-attachments/assets/a08edea8-e84b-4241-992d-d5149a9dc3c5)
 
 
-hi thats me and @afterpain https://de.pinterest.com/pin/888686938986544329/
- ㅤ ㅤㅤ
+ [my pixels got posted gasp!](https://mypixelsspotted.straw.page/)
 
  
 
