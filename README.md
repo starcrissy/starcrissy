@@ -13,7 +13,7 @@
 
 
 
-[ata](https://pinkinthenight.atabook.org/)ㅤ[carrd](https://binass.carrd.co/)ㅤ[byi](https://byindni4pt.carrd.co/#)ㅤ[pinkterests](https://pinkterests.carrd.co/)ㅤ[myart](https://crissyart.straw.page/)
+[ata](https://pinkinthenight.atabook.org/)ㅤ[carrd](https://binass.carrd.co/)ㅤ[pinkterests](https://pinkterests.carrd.co/)ㅤ[myart](https://crissyart.straw.page/)
 
 ㅤ𝑛𝑜 𝑐𝑜𝑙𝑜𝑟𝑝𝑖𝑐𝑘𝑖𝑛𝑔 + 𝑎𝑙𝑤𝑎𝑦𝑠 𝑎𝑠𝑘 𝑚𝑦 𝑝𝑒𝑟𝑚𝑖𝑠𝑠𝑖𝑜𝑛 𝑓𝑖𝑟𝑠𝑡 𝑓𝑜𝑟 𝑖𝑛𝑠𝑝𝑜 .
 
