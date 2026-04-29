@@ -1,5 +1,8 @@
 <div id="header" align="center">  
-<img width="1280" height="143" alt="rwal1a" src="https://github.com/user-attachments/assets/ef85cf22-1b26-42e2-9309-9df1a31693a7" />
+<img width="26" height="21" alt="yu6ds1" src="https://github.com/user-attachments/assets/7070d6b9-ca1f-4eb7-b4b5-2f5dbb89c559" />
+<img width="26" height="21" alt="asi8pc" src="https://github.com/user-attachments/assets/13c7a4a5-be7e-4a51-97e5-8ca1571383b0" />
+
+
 
 ![1hkrpi](https://github.com/user-attachments/assets/6f6ed137-386a-4ae2-9923-1ba0e15dec83)
 
