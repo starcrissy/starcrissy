@@ -6,8 +6,7 @@
 
 
 
-
-![2fe13bc418e0488e767c1ab4bb9b7b1c](https://github.com/user-attachments/assets/b51b22d8-bb5b-4aea-b728-bb44541710ff)
+<img width="540" height="447" alt="tumblr_02a27384d7ea9bd702081471a411d26a_38e959c6_540" src="https://github.com/user-attachments/assets/cfb73ea5-b0c5-4354-843b-1673ba4fa708" />
 
 
 
