@@ -12,7 +12,7 @@
 <img width="540" height="447" alt="tumblr_02a27384d7ea9bd702081471a411d26a_38e959c6_540" src="https://github.com/user-attachments/assets/cfb73ea5-b0c5-4354-843b-1673ba4fa708" />
 
 
-
+semi ia , studying for exams eueue . .
 
 
 [ata](https://pinkinthenight.atabook.org/)ㅤ[carrd](https://binass.carrd.co/)ㅤ[pinkterests](https://pinkterests.carrd.co/)ㅤ[byi](https://dovescage.straw.page/)
