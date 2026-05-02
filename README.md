@@ -15,7 +15,7 @@
 semi ia , studying for exams eueue . .
 
 
-[ata](https://pinkinthenight.atabook.org/)ㅤ[carrd](https://binass.carrd.co/)ㅤ[pinkterests](https://pinkterests.carrd.co/)ㅤ[byi](https://dovescage.straw.page/)
+[ata](https://pinkinthenight.atabook.org/)ㅤ[carrd](https://binass.carrd.co/)ㅤ[pinkterests](https://pinkterests.carrd.co/)ㅤ[byi](https://dovescage.straw.page/)ㅤ[listography](https://listography.com/4665221720)
 
 
 
