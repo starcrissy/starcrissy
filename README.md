@@ -12,7 +12,7 @@
 <img width="540" height="447" alt="tumblr_02a27384d7ea9bd702081471a411d26a_38e959c6_540" src="https://github.com/user-attachments/assets/cfb73ea5-b0c5-4354-843b-1673ba4fa708" />
 
 
-semi inactive , studying for exams eueue . .
+𝘀𝗲𝗺𝗶 𝗶𝗻𝗮𝗰𝘁𝗶𝘃𝗲 - 𝘀𝗶𝗴𝗻 𝗮𝘁𝗮 .ᐟ
 
 
 [ata](https://pinkinthenight.atabook.org/)ㅤ[carrd](https://binass.carrd.co/)ㅤ[rentry](https://rentry.co/sleepcall)ㅤ[listography](https://listography.com/4665221720)
