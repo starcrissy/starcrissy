@@ -9,7 +9,8 @@
 
 
 
-<img width="540" height="447" alt="tumblr_02a27384d7ea9bd702081471a411d26a_38e959c6_540" src="https://github.com/user-attachments/assets/cfb73ea5-b0c5-4354-843b-1673ba4fa708" />
+<img width="450" height="318" alt="image" src="https://github.com/user-attachments/assets/aa5c1003-96bd-43a3-ba00-8f0930d9bf9e" />
+
 
 
 𝘀𝗲𝗺𝗶 𝗶𝗻𝗮𝗰𝘁𝗶𝘃𝗲 - 𝘀𝗶𝗴𝗻 𝗮𝘁𝗮 .ᐟ
