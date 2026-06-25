@@ -21,12 +21,11 @@
 
 
  
-![zfwhpm](https://github.com/user-attachments/assets/a08edea8-e84b-4241-992d-d5149a9dc3c5)
+<img width="350" height="20" alt="tumblr_59d02601a35b7da12bccdd481994ef33_1be45674_400" src="https://github.com/user-attachments/assets/25147c77-cfe7-42c9-aae4-4e61025facb9" />
 
 
  [my pixels got posted gasp!](https://mypixelsspotted.straw.page/)
 
- 
 
 
 
