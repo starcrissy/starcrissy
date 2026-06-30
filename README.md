@@ -13,7 +13,7 @@
 
 
 
-𝘀𝗲𝗺𝗶 𝗶𝗻𝗮𝗰𝘁𝗶𝘃𝗲 - 𝘀𝗶𝗴𝗻 𝗮𝘁𝗮 .ᐟ
+𝘀𝗶𝗴𝗻 𝗮𝘁𝗮 .ᐟ
 
 
 [ata](https://pinkinthenight.atabook.org/)ㅤ[carrd](https://binass.carrd.co/)ㅤ[rentry](https://rentry.co/sleepcall)ㅤ[listography](https://listography.com/4665221720)
