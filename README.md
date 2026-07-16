@@ -30,6 +30,7 @@
  [my pixels got posted gasp!](https://mypixelsspotted.straw.page/)
 
 
+<img width="450" height="127" alt="ezgif-421ac1b00e400305" src="https://github.com/user-attachments/assets/dbfbe1dd-109e-4f74-b068-f20646d2ab7b" />
 
 
 
