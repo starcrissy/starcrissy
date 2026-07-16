@@ -9,7 +9,8 @@
 
 
 
-<img width="400" height="200" alt="lv_0_20260625144958" src="https://github.com/user-attachments/assets/daf3c8e9-3904-48da-b1ec-da77dd2991c4" />
+<img width="510" height="510" alt="tumblr_b0f0194c07b895ee042c606ff8025010_30e8e102_540" src="https://github.com/user-attachments/assets/df17c240-66d7-4381-827f-52df9a6f4e0e" />
+
 
 
 
