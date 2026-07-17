@@ -30,7 +30,7 @@
  [my pixels got posted gasp!](https://mypixelsspotted.straw.page/)
 
 
-<img width="351" height="200" alt="363efc573462db04b2c58099ac664118" src="https://github.com/user-attachments/assets/7e8b198c-ccea-4b6d-94d1-cfc4388327bd" />
+<img width="185" height="40" alt="tumblr_115349daf5359b4e4f33d7e28f628aaa_641a4be0_250" src="https://github.com/user-attachments/assets/e0a0a406-29dd-48bd-9a58-721a08a54f5f" />
 
 
 
