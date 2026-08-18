@@ -1,6 +1,6 @@
 <div id="header" align="center">  
-<img width="26" height="21" alt="yu6ds1" src="https://github.com/user-attachments/assets/7070d6b9-ca1f-4eb7-b4b5-2f5dbb89c559" />
-<img width="26" height="21" alt="asi8pc" src="https://github.com/user-attachments/assets/13c7a4a5-be7e-4a51-97e5-8ca1571383b0" />
+<img width="20" height="20" alt="44jjtg" src="https://github.com/user-attachments/assets/9918860a-b42b-4b94-beb5-d95e39b8298f" />
+
 
 
 
@@ -9,7 +9,6 @@
 
 
 
-<img width="150" height="150" alt="ezgif-722f2e1a30baca6e" src="https://github.com/user-attachments/assets/663de075-d352-41ad-a6a9-9563c1d9b28a" />
 
 
 
@@ -24,13 +23,13 @@
 
 
  
-<img width="350" height="20" alt="tumblr_59d02601a35b7da12bccdd481994ef33_1be45674_400" src="https://github.com/user-attachments/assets/25147c77-cfe7-42c9-aae4-4e61025facb9" />
+<img width="239" height="29" alt="t7gvle" src="https://github.com/user-attachments/assets/651a7f16-4d43-4b24-94cb-d63e6e9b793a" />
 
 
  [my pixels got posted gasp!](https://mypixelsspotted.straw.page/)
 
 
-<img width="185" height="40" alt="tumblr_115349daf5359b4e4f33d7e28f628aaa_641a4be0_250" src="https://github.com/user-attachments/assets/e0a0a406-29dd-48bd-9a58-721a08a54f5f" />
+<img width="20" height="20" alt="tumblr_31638ab32cc7c85ba10d396f94a34dd0_4e3453c7_75" src="https://github.com/user-attachments/assets/a9af70bb-ca7c-4d43-b958-e833fb417a9b" />
 
 
 
