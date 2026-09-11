@@ -24,7 +24,6 @@
 
 
  
-<img width="200" height="31" alt="zfwhpm" src="https://github.com/user-attachments/assets/fe1efbaf-3bea-4e37-8936-199cfe4929ce" />
 
 
  [my pixels got posted gasp!](https://mypixelsspotted.straw.page/)
