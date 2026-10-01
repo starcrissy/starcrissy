@@ -16,7 +16,7 @@
 
 
 
-𝓼𝗂𝗀𝗇 𝓪𝗍𝖺 .ᐟ
+𝓼𝗂𝗀𝗇 𝓪𝗍𝖺 .ᐟ 𝗰𝗵𝗲𝗰𝗸 𝗺𝘆 𝗹𝗶𝗻𝗸𝘀 𝗯𝗲𝗳𝗼𝗿𝗲 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁𝗶𝗻𝗴
 
 
 [ata](https://pinkinthenight.atabook.org/)ㅤ[carrd](https://binass.carrd.co/)ㅤ[straw](https://afaintsignal.straw.page/)ㅤ[listography](https://listography.com/4665221720)
