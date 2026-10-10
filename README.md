@@ -22,7 +22,7 @@
 
 
 
-[ata](https://pinkinthenight.atabook.org/)ㅤ[carrd](https://binass.carrd.co/)ㅤ[straw](https://afaintsignal.straw.page/)ㅤ[listography](https://listography.com/4665221720)
+[ata](https://pinkinthenight.atabook.org/)ㅤ[art gallery](https://dollverssart.straw.page/)ㅤ[straw](https://afaintsignal.straw.page/)ㅤ[listography](https://listography.com/4665221720)
 
 
 
