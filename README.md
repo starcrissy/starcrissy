@@ -30,7 +30,6 @@
  [my pixels got posted gasp!](https://mypixelsspotted.straw.page/)
 
 
-<img width="575" height="73" alt="1hkrpi" src="https://github.com/user-attachments/assets/5574d549-ce55-44e2-98ba-ee97a6f0730e" />
 
 
 <img width="408" height="102" alt="4ls1dv" src="https://github.com/user-attachments/assets/5f631bb9-d061-4e1b-9257-c90499dcc6d2" />
