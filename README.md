@@ -1,7 +1,7 @@
 <div id="header" align="center">  
-<img width="1280" height="158" alt="tumblr_70e64ab5ffde106f3073987966a830fd_3096c9ba_1280" src="https://github.com/user-attachments/assets/7ff30db2-3118-460a-a580-98ff75f16246" />
 
 
+<img width="575" height="73" alt="1hkrpi" src="https://github.com/user-attachments/assets/e8793b87-1ea0-4ef5-b9de-79fce841c9b8" />
 
 
 ![1hkrpi](https://github.com/user-attachments/assets/6f6ed137-386a-4ae2-9923-1ba0e15dec83)
@@ -10,8 +10,7 @@
 
 
 
-<img width="250" height="193" alt="tumblr_0d630539451c089e02cd560050e8b941_fb070ede_250" src="https://github.com/user-attachments/assets/89732665-afb3-417c-947e-fae865e8e98d" />
-
+<img width="400" height="225" alt="tumblr_cd1830235e576d1ef7dfe32118b091f2_e5db1416_400" src="https://github.com/user-attachments/assets/f17423a5-3bcf-424f-b7e0-2dfe711e29a2" />
 
 
 
@@ -32,7 +31,7 @@
  [my pixels got posted gasp!](https://mypixelsspotted.straw.page/)
 
 
-<img width="400" height="30" alt="line-hane02" src="https://github.com/user-attachments/assets/3e094571-3447-47af-b7bb-b43614c02152" />
+<img width="575" height="73" alt="1hkrpi" src="https://github.com/user-attachments/assets/5574d549-ce55-44e2-98ba-ee97a6f0730e" />
 
 
 
