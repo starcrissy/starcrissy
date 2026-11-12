@@ -9,7 +9,7 @@
 
 
 
-<img width="540" height="270" alt="tumblr_f4f6c8837132708c842475023a5069ac_bd9e115b_540" src="https://github.com/user-attachments/assets/a64272b7-d2e6-4e8f-913e-c16cf787b8e7" />
+<img width="51" height="52" alt="tumblr_5e28ecbcabf823a0ea15c568ab5c414f_dcf07cbf_75" src="https://github.com/user-attachments/assets/222c261f-c9d5-4f93-943b-bda5583eba2b" />
 
 
 
