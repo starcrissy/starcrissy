@@ -9,7 +9,7 @@
 
 
 
-<img width="143" height="134" alt="gxl8ze" src="https://github.com/user-attachments/assets/1e8fde5a-5da2-4de6-8260-359b14ba76fa" />
+<img width="100" height="100" alt="tumblr_4823e8535cfbc964db6e70a1d612a64d_a900a1a0_100" src="https://github.com/user-attachments/assets/d347d22f-7d5a-4e0b-8b0f-ed7de5a0e3bd" />
 
 
 
@@ -30,6 +30,7 @@
  [my pixels got posted gasp!](https://mypixelsspotted.straw.page/)
 
 
+<img width="20" height="20" alt="tumblr_5997bb9ecc99bf8714b6ac5bec3617c5_a47d2c81_75" src="https://github.com/user-attachments/assets/411b22ac-9775-4942-9c2e-26c6f8ac5df8" />
 
 
 
